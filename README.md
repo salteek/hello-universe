@@ -1,2 +1,4 @@
 # hello-universe
-law of attraction
+believe
+act
+succeed
